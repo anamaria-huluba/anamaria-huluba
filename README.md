@@ -11,5 +11,5 @@ I follow a holistic approach in all areas of my life and my hobbies also reflect
 
 Additionally, I feel very passionately about raising awareness on subjects that are close to my heart and trying to spread some love with my [#kindnessmovement ❤️](https://www.linkedin.com/search/results/all/?keywords=%23kindnessmovement&origin=GLOBAL_SEARCH_HEADER&sid=BE6).
 
-Follow me on [LinkedIn](https://www.linkedin.com/in/anamaria-huluba/) where you can join me to spread the love. 
+Follow me on [LinkedIn](https://www.linkedin.com/in/anamaria-huluba/) so we can learn together! 
 <img height="180em" src="https://github-readme-stats.vercel.app/api?username=anamaria-huluba&show_icons=true&hide_border=true&&count_private=true&include_all_commits=true" />
