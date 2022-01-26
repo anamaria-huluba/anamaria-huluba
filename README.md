@@ -1,7 +1,7 @@
 
 ## Hello, I'm Anamaria! <img src="https://raw.githubusercontent.com/MartinHeinz/MartinHeinz/master/wave.gif" width="30px">
 
-### Nice to see you here! ![visitors](https://visitor-badge.glitch.me/badge?page_id=${anamaria-huluba}.${your.repo.id})
+### Nice to see you here! ![visitor](https://visitor-badge.glitch.me/badge?page_id=${anamaria-huluba}.${your.repo.id})
 
 I am a **ultralearner** with six months experience dedicated to building my abilities in Tech, gauging all my efforts towards a career switch. Found an amazingly supportive community on LinkedIn, and have constantly worked on preparing a smooth transition.
 
