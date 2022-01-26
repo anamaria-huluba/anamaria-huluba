@@ -5,7 +5,7 @@
 
 I am a **ultralearner** with six months experience dedicated to building my abilities in Tech, gauging all my efforts towards a career switch. Found an amazingly supportive community on LinkedIn, and have constantly worked on preparing a smooth transition.
 
-I'm currently undertaking a Data Engineer Bootcamp with [TechUp](https://techupwomen.org/). which is an exciting new [Institute of Coding](https://instituteofcoding.org/) funded programme that retrains individuals into technology careers.
+I'm currently undertaking a Data Engineer Bootcamp with [TechUp](https://techupwomen.org/) which is an exciting new [Institute of Coding](https://instituteofcoding.org/) funded programme that retrains individuals into technology careers.
 
 I follow a holistic approach in all areas of my life and my hobbies also reflect this. Reading (I'm following Christina Stathopoulo’s [#bookaweekchallenge](https://www.linkedin.com/search/results/all/?keywords=%23bookaweekchallenge&origin=GLOBAL_SEARCH_HEADER&sid=ada)), taking long walks to admire nature's beauty, meditating, cooking simple but healthy recipes and kickboxing all are waved into my daily life and building upon each other.   
 
