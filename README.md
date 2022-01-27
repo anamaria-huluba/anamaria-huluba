@@ -9,7 +9,7 @@ I'm currently undertaking a Data Engineer Bootcamp with [TechUp](https://techupw
 
 I follow a holistic approach in all areas of my life and my hobbies also reflect this. Reading (I'm following Christina Stathopoulo’s [#bookaweekchallenge](https://www.linkedin.com/search/results/all/?keywords=%23bookaweekchallenge&origin=GLOBAL_SEARCH_HEADER&sid=ada)), taking long walks to admire nature's beauty, meditating, cooking simple but healthy recipes and kickboxing all are waved into my daily life and building upon each other.   
 
-I trully believe that **"how you do anything is how you do everything."** as Simon Sinek has beautifully said in his book Leaders Eat Last: Why Some Teams Pull Together and Others Don't.
+I trully believe that **"how you do anything is how you do everything"** as Simon Sinek has beautifully said in his book Leaders Eat Last: Why Some Teams Pull Together and Others Don't.
 
 Additionally, I feel very passionately about raising awareness on subjects that are close to my heart and trying to spread some love with my [#kindnessmovement ❤️](https://www.linkedin.com/search/results/all/?keywords=%23kindnessmovement&origin=GLOBAL_SEARCH_HEADER&sid=BE6).
 
