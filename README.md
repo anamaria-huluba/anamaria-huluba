@@ -11,7 +11,7 @@ I follow a holistic approach in all areas of my life and my hobbies also reflect
 
 I trully believe that **"how you do anything is how you do everything"** as Simon Sinek beautifully said in his book, Leaders Eat Last: Why Some Teams Pull Together and Others Don't.
 
-Additionally, I feel very passionately about raising awareness on subjects that are close to my heart and trying to spread some love with my [#kindnessmovement ❤️](https://www.linkedin.com/search/results/all/?keywords=%23kindnessmovement&origin=GLOBAL_SEARCH_HEADER&sid=BE6).
+Additionally, I feel very passionately about raising awareness on issues that are close to my heart and trying to spread some love with my [#kindnessmovement ❤️](https://www.linkedin.com/search/results/all/?keywords=%23kindnessmovement&origin=GLOBAL_SEARCH_HEADER&sid=BE6).
 
 Follow me on [LinkedIn](https://www.linkedin.com/in/anamaria-huluba/) so we can learn together! 
 
