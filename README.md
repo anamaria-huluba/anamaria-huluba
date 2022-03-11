@@ -3,7 +3,7 @@
 
 ### Nice to see you here! ![visitor](https://visitor-badge.glitch.me/badge?page_id=${anamaria-huluba}.${your.repo.id})
 
-I am a **ultralearner** with six months experience dedicated to building my abilities in Tech, gauging all my efforts towards a career switch. Found an amazingly supportive community on LinkedIn, and have constantly worked on preparing a smooth transition.
+I am an **ultralearner** with 1 year experience dedicated to building my abilities in Tech, gauging all my efforts towards a career switch. Found an amazingly supportive community on LinkedIn, and have constantly worked on preparing a smooth transition.
 
 I'm currently undertaking a Data Engineer Bootcamp with [TechUp](https://techupwomen.org/), which is an exciting new [Institute of Coding](https://instituteofcoding.org/) funded programme that retrains individuals into technology careers.
 
